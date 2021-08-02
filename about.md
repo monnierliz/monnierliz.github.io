@@ -33,6 +33,6 @@ Since then, I continue to teach a variety of classes as well as focusing on my
 profession as a Feldenkrais® Practitioner. I am currently enrolled as a Teacher in
 Training for Bones for Life® as administrated through Future Life Now.
 
-You can learn ore about my career and credentials in my [bio](/bio/). 
+You can learn more about my career and credentials in my [bio](/bio/). 
 
 <p style="text-align: center;">{% include button.html text="Work with Liz" link="/services" %}</p>
