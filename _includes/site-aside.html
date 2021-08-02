@@ -1,0 +1,27 @@
+<aside class="aside  typeset  aside--{{ include.align | default: 'right' }}">
+
+  {% if page.layout == "post" %}
+    <section class="section  section--related-posts">
+      {% include post-related.html %}
+    </section>
+
+  {% elsif page.layout == "page" or page.layout == "home" or page.layout == "blog" %}
+    <section class="section  section--description">
+      <ul style="list-style-type: none;" class="list">
+        <li class="item"><a href="/feldenkrais/">The Feldenkrais Method</a></li>
+        <li class="item"><a href="/services#bones">Bones for Life</a></li>
+        <li class="item"><a href="/services#dance">Dance for Disabilities</a></li>
+        <li class="item"><a href="/services#qigong">Qigong Classes</a></li>
+        <li class="item"><a href="/contact/">Contact Liz</a></li>
+      </ul>
+    </section>
+
+  {% elsif page.layout == "categories" %}
+    <section class="section  section--category-index">
+      <h3>Index</h3>
+      {% include nav-categories.html %}
+    </section>
+
+  {% endif %}
+
+</aside>
