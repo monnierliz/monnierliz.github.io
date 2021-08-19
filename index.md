@@ -42,6 +42,7 @@ be a better swimmer. For others they look to movement to reduce stress.
 
 We can start on a path of easier movement together, and maybe you can become a
 junkie too. 
+
 Join a Class with Liz on Zoom or In Person 
 
 Bones for Life® on Zoom with Liz
@@ -65,7 +66,7 @@ September 2 -December 9, 2021 (call 260-424-6574 to register, drop in’s welcom
 
 Zoom Classes for ATM will potentially resume in November. Stay Tuned.
 
-Dance for PD (dance movement in chair for those with limited mobility) In Person
+Dance for PD (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 Tuesdays 12:30 p.m.-1:30 p.m. 
 August 31 – December 7, 2021 (Call 260-424-6574 to register, drop in’s welcome)
