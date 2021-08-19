@@ -42,5 +42,42 @@ be a better swimmer. For others they look to movement to reduce stress.
 
 We can start on a path of easier movement together, and maybe you can become a
 junkie too. 
+Join a Class with Liz on Zoom or In Person 
+
+Bones for Life® on Zoom with Liz
+Tuesdays 6-7:00 (EST) 
+August 17, 24, 31, 
+September 7, 14, (no class Sept. 21) 28, 
+October 5
+Saturdays 10 a.m.- 11:00 a.m. (EST)
+October 2, 9
+
+Qigong movement for relaxation and restoration on Zoom
+Mondays 10 a.m. -11:00 a.m. (EST)
+August 23, 30,
+September 13, 27 (no class Sept. 4 or 20)
+October 4, 11, (no class Oct. 18) 25
+
+Feldenkrais® Awareness Through Movement In Person
+Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
+Thursdays 12 noon -1:00 p.m. 
+September 2 -December 9, 2021 (call 260-424-6574 to register, drop in’s welcome)
+
+Zoom Classes for ATM will potentially resume in November. Stay Tuned.
+
+Dance for PD (dance movement in chair for those with limited mobility) In Person
+In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
+Tuesdays 12:30 p.m.-1:30 p.m. 
+August 31 – December 7, 2021 (Call 260-424-6574 to register, drop in’s welcome)
+
+Exploring Dance (for young adults with developmental disabilities) In Person
+Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
+Mondays, 5:30-6:30 (call 260-424-6574 to register)
+August 30- December 6
+
+
+
+
+
 
 <p style="text-align: center;">{% include button.html text="Learn More" link="/services" %}</p>
