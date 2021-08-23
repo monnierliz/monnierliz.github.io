@@ -8,7 +8,7 @@ title: The Feldenkrais Method®
 
 > “Liz has worked with my knee a number of times over the past year and I am grateful to say that it is once again functioning as a knee should.” — Allison Ballard
 
-{% include figure.html image="/assets/images/FI_body.jpg" position="center" width="450" %} 
+{% include figure.html image="/assets/images/Table.jpg" position="center" width="450" %} 
 
 Dr. Moshe Feldenkrais was a scientific engineer by trade and judo master by training. He had long suffered issues with his knees, but was intent on avoiding invasive options like surgery. 
 
