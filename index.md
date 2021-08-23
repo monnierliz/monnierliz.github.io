@@ -43,7 +43,7 @@ be a better swimmer. For others they look to movement to reduce stress.
 We can start on a path of easier movement together, and maybe you can become a
 junkie too. 
 
-Join a Class with Liz on Zoom or In Person 
+Join a Class with Liz on Zoom or In Person: 
 
 Bones for Life® on Zoom with Liz
 Tuesdays 6-7:00 (EST) 
