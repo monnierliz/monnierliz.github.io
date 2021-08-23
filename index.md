@@ -64,7 +64,6 @@ Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 Thursdays 12 noon -1:00 p.m. 
 September 2 -December 9, 2021 (call 260-424-6574 to register, drop in’s welcome)
 
-Zoom Classes for ATM will potentially resume in November. Stay Tuned.
 
 Dance for PD (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
