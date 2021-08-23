@@ -1,0 +1,5 @@
+---
+permalink: "/.well-known/pki-validation"
+---
+
+20E7496782A3C343B5617CB530BBE98B97C1380193CB13ED9877E780610E6DDA comodoca.com 61080ca871f7d
