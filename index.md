@@ -1,7 +1,7 @@
 ---
 feature_text: |
   ## Liz Monnier
-  Movement Junkie
+  A Pathway to Easier Movement
 feature_image: "https://picsum.photos/1300/400?image=989"
 title: Welcome from Liz
 ---
@@ -16,14 +16,14 @@ A Lifetime spent engaging people with creativity, movement, and music
 
 Guild Certified Feldenkrais® Practitioner
 
-Bones for Life® Teacher in Training
+Certified Bones for Life® Instructor
 
 Inspiring People with Disabilities through Dance
 
+Love sharing Qigong with others
+
 <hr/>
 
-I have always been a lover of movement. Once I started, I couldn’t stop. I was
-hooked. I became a junkie. The more I moved, the more I wanted to move. What about you?
 
 You can’t love movement if it is difficult or painful. I hope that I can help you
 rediscover the possibilities of movement through individual sessions or classes.
@@ -40,40 +40,46 @@ be a better swimmer. For others they look to movement to reduce stress.
 
 {% include figure.html image="/assets/images/baseball.jpeg" position="center" caption="Our community coming togther, dancing to Take me Out to the Ball Game with friends from the Dance Collective, Dance for Disabilities, and more." %}
 
-We can start on a path of easier movement together, and maybe you can become a
-junkie too. 
+We can start on a path of easier movement together.
 
-Join a Class with Liz on Zoom or In Person: 
+Join a Class with Liz 
 
-Bones for Life® on Zoom with Liz
-Tuesdays 6-7:00 (EST) 
-August 17, 24, 31, 
-September 7, 14, (no class Sept. 21) 28, 
-October 5
-Saturdays 10 a.m.- 11:00 a.m. (EST)
-October 2, 9
+Bones for Life® Pop Up Free Introduction
+Experience the difference with this program for stimulating bone strength through 
+natural movement and weight-bearing posture. 
+Sunday, December 19, 2021, In Person
+4:00-5:30 p.m at the Fort Wayne Dance Collective
+437 East Berry Street, Fort Wayne IN 46802
+Call to Register! 260-424-6574
 
-Qigong movement for relaxation and restoration on Zoom
-Mondays 10 a.m. -11:00 a.m. (EST)
-August 23, 30,
-September 13, 27 (no class Sept. 4 or 20)
-October 4, 11, (no class Oct. 18) 25
+Bones for Life® Stand Tall!
+A four-week series in Bones for Life® to improve posture and alignment to facilitate healthy bones.
+Fridays 11 a.m. -12 noon 
+January 7, 14, 21, 28, 2022
+In Person at Fort Wayne Dance Collective, 
+437 East Berry Street, Fort Wayne, IN 46802
+Call to Register (260) 424-6574
 
 Feldenkrais® Awareness Through Movement In Person
 Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 Thursdays 12 noon -1:00 p.m. 
-September 2 -December 9, 2021 (call 260-424-6574 to register, drop in’s welcome)
-
+Starting January 6, 2022 (call 260-424-6574 to register, drop in’s welcome)
 
 Dance for PD (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 Tuesdays 12:30 p.m.-1:30 p.m. 
-August 31 – December 7, 2021 (Call 260-424-6574 to register, drop in’s welcome)
+Starting January 4, 2022 (Call 260-424-6574 to register, drop in’s welcome)
 
 Exploring Dance (for young adults with developmental disabilities) In Person
 Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 Mondays, 5:30-6:30 (call 260-424-6574 to register)
-August 30- December 6
+Starting January 3, 2022
+
+T’ai Chi for Relaxation, Botanical Gardens, Fort Wayne In Person
+Tuesday Mornings 9:30-10:30 a.m. and Tuesday Evenings 5:00-6:00 p.m.
+January 18 – February 22 (6-week session) 
+To register: call the Fort Wayne Parks and Recreation Dept. (260) 427-6000
+
 
 
 
