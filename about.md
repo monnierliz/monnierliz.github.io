@@ -30,8 +30,7 @@ as a teacher, choreographer, performer, director, and administrator.
 I left my administrative position at the Fort Wayne Dance Collective in 2015 which
 coincided with my graduation from the Seattle Eastside Feldenkrais® Training.
 Since then, I continue to teach a variety of classes as well as focusing on my
-profession as a Feldenkrais® Practitioner. I am currently enrolled as a Teacher in
-Training for Bones for Life® as administrated through Future Life Now.
+profession as a Feldenkrais® Practitioner. I recently became a Certified Bones For Life® Instructor.
 
 You can learn more about my career and credentials in my [bio](/bio/). 
 
