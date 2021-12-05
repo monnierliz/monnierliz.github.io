@@ -31,7 +31,7 @@ Interested in scheduling a session? Booking a class? Just need movement advice o
 
 ### Location
 
-My studio is located in my historic home in the convenient West Central neighborhood of Fort Wayne.
+My studio is located in my historic home in the convenient West Central neighborhood of Fort Wayne. I also teach in person classes at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN. 
 
 {% include figure.html image="/assets/images/liz-on-table.jpeg" position="center" caption="Liz at her home studio in Fort Wayne" %}
 
