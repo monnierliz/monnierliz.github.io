@@ -1,6 +1,6 @@
 ---
 feature_text: |
-  Be Your Own Movement Junkie
+  Create a Path to Easier Movement
 feature_image: "https://picsum.photos/2560/600?image=873"
 aside: true
 ---
@@ -37,12 +37,10 @@ Feldenkrais Method® services I offer include:
 
 Ruthy Alon, one of the original 13 students of Dr. Moshe Feldenkrais, created the [Bones for Life® Method](http://movementintelligence.org/bones-for-life/) to strengthen bones through movement. 
 
-When you consider that [50% of all women will experience osteoporosis in their lifetime](https://www.nof.org/preventing-fractures/general-facts/what-women-need-to-know/), and that if you live long enough, everyone will experience some bone loss. This is why this somatic method is so important and needed, and it is also a wonderful alternative to taking drugs! 
+When you consider that [50% of all women will experience osteoporosis in their lifetime](https://www.nof.org/preventing-fractures/general-facts/what-women-need-to-know/), and that if you live long enough, everyone will experience some bone loss. This is why this somatic method is so important and needed.
 
 Ruthy Alon designed 90 processes that involve simple to complex movements that create “biological optimism” as we inspire the skeleton to continue its work of building bone health. The processes are done standing, sitting and lying down and sometimes use simple props like towels or rolled up socks. As we progress and students become more invested, students are asked to acquire a cloth body wrap and ankle and hand weights.  Many processes also require a wall.  
-
-As a “Teacher in Training” I will teaching classes through Zoom, which I offer to anyone interested. I will also be teaching in person at the Fort Wayne Dance Collective in the future. 
-
+ 
 The Foundation for Movement Intelligence is the North American nonprofit sponsor of Ruthy Alon’s programs and requires that any student taking a Bones for Life® class complete a “Memorandum of Understanding of Movement Intelligence” form. So, before I can send a link to you for the class [you must first submit this form](https://forms.gle/K6mNWwSemJ5dkFEq9). 
 
 I am so excited to start this journey with you to build a strong and stable skeleton that can serve you for the rest of your life!   
@@ -87,8 +85,7 @@ confidant, centered, grounded and focused. You can feel that way too. Let’s do
 {% include figure.html image="/assets/images/trees.JPG" position="center" width="350" %}
 
 You don’t need any experience to join a class. The directions are simple, and you can
-move at your own pace. You also don’t need to come to every class, just pop in when you
-can.   
+move at your own pace. 
 
 <p style="text-align: center;">{% include button.html text="Join a Class" link="/contact" %}</p>
 
