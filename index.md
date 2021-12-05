@@ -20,7 +20,7 @@ Certified Bones for Life® Instructor
 
 Inspiring People with Disabilities through Dance
 
-Love sharing Qigong with others
+Continues to teach Qigong and forms of Modern Dance
 
 <hr/>
 
