@@ -17,6 +17,6 @@ Since FWDC’s founding, she has taught on-site and outreach classes as well as 
 
 In 2015 she received a Stanley Liddell Award and Arts United of Greater Fort Wayne awarded Liz Monnier with a Lifetime Achievement Award. In December 2018 Bi-County Services in Bluffton also awarded Liz with a Lifetime Achievement Award.
 
- Ms. Monnier graduated from the Seattle Eastside Feldenkrais training program in 2015 and is a Guild Certified Feldenkrais® Practitioner. She is a certified Music Together® teacher as well as certified to teach Dance for Parkinson’s Disease. She is currently enrolled as a Teacher in Training in Bones for Life® and continues to teach programs for the Fort Wayne Dance Collective. 
+ Ms. Monnier graduated from the Seattle Eastside Feldenkrais training program in 2015 and is a Guild Certified Feldenkrais® Practitioner. She is a certified Music Together® teacher as well as certified to teach Dance for Parkinson’s Disease. She recently became a Certified Bones for Life® Instructor and continues to teach programs for the Fort Wayne Dance Collective. 
 
 <p style="text-align: center;">{% include button.html text="Work with Liz" link="/services" %}</p>
