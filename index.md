@@ -44,14 +44,6 @@ We can start on a path of easier movement together.
 
 Join a Class with Liz 
 
-Bones for Life® Pop Up Free Introduction
-Experience the difference with this program for stimulating bone strength through 
-natural movement and weight-bearing posture. 
-Sunday, December 19, 2021, In Person
-4:00-5:30 p.m at the Fort Wayne Dance Collective
-437 East Berry Street, Fort Wayne IN 46802
-Call to Register! 260-424-6574
-
 Bones for Life® Stand Tall!
 A four-week series in Bones for Life® to improve posture and alignment to facilitate healthy bones.
 Fridays 11 a.m. -12 noon 
@@ -59,6 +51,11 @@ January 7, 14, 21, 28, 2022
 In Person at Fort Wayne Dance Collective, 
 437 East Berry Street, Fort Wayne, IN 46802
 Call to Register (260) 424-6574
+OR
+ONLINE on Zoom
+Thursdays, January 6, 13, 20, 27, 2022
+6:00 p.m.-7:00 p.m. (EST)
+register monnierliz@gmail.com
 
 Feldenkrais® Awareness Through Movement In Person
 Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
