@@ -6,7 +6,7 @@ feature_image: "https://picsum.photos/1300/400?image=989"
 title: Welcome from Liz
 ---
 
-{% include video.html id="yNCtXfQTJLU" title="Welcome from Liz Monnier" %}
+{% include video.html id="https://youtu.be/SbR4p6gjBl0" title="Welcome from Liz Monnier" %}
 
 <hr/>
 
