@@ -44,11 +44,12 @@ We can start on a path of easier movement together.
 
 Join a Class with Liz 
 
-Bones for Life® "Help for the Hips"
+Bones for Life® "Easy Knees" 
 ONLINE on Zoom
-Thursdays, Feb. 3, 10, 17, 24
+Thursdays, March 3,10,17,24
 12 noon  - 1 p.m. (EST)
 register:  monnierliz@gmail.com
+Sessions are recorded and available for one week
 
 Dance for PD (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
@@ -60,10 +61,10 @@ Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 Mondays, 5:30-6:30 (call 260-424-6574 to register)
 Starting January 3, 2022
 
-T’ai Chi for Relaxation, Botanical Gardens, Fort Wayne In Person
-Tuesday Mornings 9:30-10:30 a.m. and Tuesday Evenings 5:00-6:00 p.m.
-January 18 – February 22 (6-week session) 
-To register: call the Fort Wayne Parks and Recreation Dept. (260) 427-6000
+Feldenkrais® Awareness through Movement Classes
+will be offered at the Fort Wayne Dance Collective April -June. Stayed tuned for more information! 
+
+
 
 
 
