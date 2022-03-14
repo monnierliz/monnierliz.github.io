@@ -43,6 +43,10 @@ be a better swimmer. For others they look to movement to reduce stress.
 We can start on a path of easier movement together.
 
 Join a Class with Liz 
+I am happy to announce that we will once again be offering Feldenkrais® Awareness Through Movement Classes, in-person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne! 
+This 10-week series which meets each Thursday, 12 noon – 1:00 p.m. starts March 31 and continues through June 9. (No class on April 7.) The fee for the series is $115, or $13 for a drop-in class. To register, call the Fort Wayne Dance Collective, 260-424-6574 or go online to https://classbug.com/businesses/2586/events/1301914 to sign up.
+If you would like to learn more about Awareness Through Movement® classes, here is a link to a fabulous 5-minute video produced by Future Life Now. 
+       https://www.youtube.com/watch?v=NQjBXunhOVQ&t=3s	
 
 Bones for Life® "Easy Knees" 
 ONLINE on Zoom
@@ -61,8 +65,7 @@ Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 Mondays, 5:30-6:30 (call 260-424-6574 to register)
 Starting January 3, 2022
 
-Feldenkrais® Awareness through Movement Classes
-will be offered at the Fort Wayne Dance Collective April -June. Stayed tuned for more information! 
+ 
 
 
 
