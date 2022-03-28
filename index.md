@@ -48,22 +48,43 @@ This 10-week series which meets each Thursday, 12 noon – 1:00 p.m. starts Marc
 If you would like to learn more about Awareness Through Movement® classes, here is a link to a fabulous 5-minute video produced by Future Life Now. 
        https://www.youtube.com/watch?v=NQjBXunhOVQ&t=3s	
 
-Bones for Life® "Easy Knees" 
-ONLINE on Zoom
-Thursdays, March 3,10,17,24
-12 noon  - 1 p.m. (EST)
-register:  monnierliz@gmail.com
-Sessions are recorded and available for one week
+Rib Cage Revival:  A Bones for Life® series 
+With Liz Monnier 
+A four-week series in April designed to create a flexible rib cage that responds and promotes a weight-bearing way of standing and walking. 
+
+When was the last time you thought about your rib cage? How we hold our chest often reflects our personality. A chest that is lifted can portray an arrogant sense of self while a chest that is pulled downward may give the impression of poor self-esteem. The humbleness of a neutral chest might reflect self-respect and dignity. The role of the rib cage is crucial to the overall organization required for sustained standing and walking. The 12 vertebrae of the thoracic spine connect with and support the ribs and often need our attention. This series will bring awareness to these mobility check points with the gentle processes of Bones for Life®. This series will require a wrap (7 yards by 40 inches of light cotton fabric.)
+
+With simple and gentle instruction, Bones for Life® processes can also bring the following benefits: 
+
+	Coordinates a springy and vibrant walk.
+	Frees the joints from compromising habits allowing for pain free movement.
+	Stimulates bone strength. 
+	Develops skills for restoring equilibrium. 
+	Teaches you how to move your unique body in a range that is right for you. 
+	Helps you to rediscover the pleasure of moving! 
+
+Online on Zoom
+Tuesdays, 6:00-7:00 (EST)
+April 5,12,19, 25
+Classes will be recorded and available for one week. (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Tuesday night class. )
+
+Registration
+To register, simply email me at monnierliz@gmail.com by April 3rd. I will then send you a link to the Zoom Meeting and send a recording to you afterward. I will also supply written reviews of the classes. 
+A reminder that you will need to submit the FMI Memorandum of Understanding prior to taking a class. You only need to do this once. 
+https://forms.gle/K6mNWwSemJ5dkFEq9
+Class fees are $40 for the series or $13 for a drop-in. 
+Payments can be made through PayPal or you can send a check to my home address.
+
 
 Dance for PD (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 Tuesdays 12:30 p.m.-1:30 p.m. 
-Starting January 4, 2022 (Call 260-424-6574 to register, drop in’s welcome)
+Starting January 4, 2022 - June 7 (Call 260-424-6574 to register, drop in’s welcome)
 
 Exploring Dance (for young adults with developmental disabilities) In Person
 Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 Mondays, 5:30-6:30 (call 260-424-6574 to register)
-Starting January 3, 2022
+Starting January 3, 2022- June 13
 
  
 
