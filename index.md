@@ -48,11 +48,12 @@ This 10-week series which meets each Thursday, 12 noon – 1:00 p.m. starts Marc
 If you would like to learn more about Awareness Through Movement® classes, here is a link to a fabulous 5-minute video produced by Future Life Now. 
        https://www.youtube.com/watch?v=NQjBXunhOVQ&t=3s	
 
-Rib Cage Revival:  A Bones for Life® series 
-With Liz Monnier 
-A four-week series in April designed to create a flexible rib cage that responds and promotes a weight-bearing way of standing and walking. 
+Bones for Life® Head to Toe, 4 Tuesdays in May with Liz Monnier
 
-When was the last time you thought about your rib cage? How we hold our chest often reflects our personality. A chest that is lifted can portray an arrogant sense of self while a chest that is pulled downward may give the impression of poor self-esteem. The humbleness of a neutral chest might reflect self-respect and dignity. The role of the rib cage is crucial to the overall organization required for sustained standing and walking. The 12 vertebrae of the thoracic spine connect with and support the ribs and often need our attention. This series will bring awareness to these mobility check points with the gentle processes of Bones for Life®. This series will require a wrap (7 yards by 40 inches of light cotton fabric.)
+“To develop sight, we need to have light. To develop hearing, we need to have sounds. To develop the bones, we need confrontation with pressure. This pressure, like light and sound, is provided in the natural conditions of our everyday life. It is present in the way we bring the weight of the body to the ground in the springy and rhythmical pulsations of walking.” Ruthy Alon
+
+This next segment “Head to Toe,” invites us to discover the relationships of the many skeletal components that allow us effortless movement particularly in standing and walking. If you are new to Bones for Life®, this is an excellent time to start! If you have taken classes, this segment provides an opportunity to revisit, refresh and upgrade your understanding and go deeper into the processes. Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. 
+This series will require a wrap (7 yards by 40 inches of light cotton fabric.)
 
 With simple and gentle instruction, Bones for Life® processes can also bring the following benefits: 
 
@@ -64,9 +65,9 @@ With simple and gentle instruction, Bones for Life® processes can also bring th
 	Helps you to rediscover the pleasure of moving! 
 
 Online on Zoom
-Tuesdays, 6:00-7:00 (EST)
-April 5,12,19, 25
-Classes will be recorded and available for one week. (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Tuesday night class. )
+ 4 Tuesdays in May 6:00 p.m – 7:00 p.m. (EST)
+May 3, 10, 17, (no class May 24) May 31
+Classes will be recorded and available for two weeks. (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Tuesday night class. )
 
 Registration
 To register, simply email me at monnierliz@gmail.com by April 3rd. I will then send you a link to the Zoom Meeting and send a recording to you afterward. I will also supply written reviews of the classes. 
@@ -78,12 +79,12 @@ Payments can be made through PayPal or you can send a check to my home address.
 
 Dance for PD (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
-Tuesdays 12:30 p.m.-1:30 p.m. 
+Tuesdays 12:30 p.m.-1:30 p.m. (No class May 3)
 Starting January 4, 2022 - June 7 (Call 260-424-6574 to register, drop in’s welcome)
 
 Exploring Dance (for young adults with developmental disabilities) In Person
 Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
-Mondays, 5:30-6:30 (call 260-424-6574 to register)
+Mondays, 5:30-6:30 (call 260-424-6574 to register) (No class May 2 or May 30)
 Starting January 3, 2022- June 13
 
  
