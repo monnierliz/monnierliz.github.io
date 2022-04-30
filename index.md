@@ -70,7 +70,7 @@ May 3, 10, 17, (no class May 24) May 31
 Classes will be recorded and available for two weeks. (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Tuesday night class. )
 
 Registration
-To register, simply email me at monnierliz@gmail.com by April 3rd. I will then send you a link to the Zoom Meeting and send a recording to you afterward. I will also supply written reviews of the classes. 
+To register, simply email me at monnierliz@gmail.com by May 2. I will then send you a link to the Zoom Meeting and send a recording to you afterward. I will also supply written reviews of the classes. 
 A reminder that you will need to submit the FMI Memorandum of Understanding prior to taking a class. You only need to do this once. 
 https://forms.gle/K6mNWwSemJ5dkFEq9
 Class fees are $40 for the series or $13 for a drop-in. 
