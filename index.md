@@ -48,14 +48,14 @@ This 10-week series which meets each Thursday, 12 noon – 1:00 p.m. starts Marc
 If you would like to learn more about Awareness Through Movement® classes, here is a link to a fabulous 5-minute video produced by Future Life Now. 
        https://www.youtube.com/watch?v=NQjBXunhOVQ&t=3s	
 
-Bones for Life® Head to Toe, 4 Tuesdays in May with Liz Monnier
+Strengthening the Antigravity Axis
+A Bones for Life® series for June 2022 with Liz Monnier
+June 7, 14, 21, 28 Tuesday nights 6:00-7:00 p.m. (EST)
 
-“To develop sight, we need to have light. To develop hearing, we need to have sounds. To develop the bones, we need confrontation with pressure. This pressure, like light and sound, is provided in the natural conditions of our everyday life. It is present in the way we bring the weight of the body to the ground in the springy and rhythmical pulsations of walking.” Ruthy Alon
+Antigravity Axis? What in the world is that? It’s a way of standing while being free from the force of gravity which is pulling on us every minute of every day. It’s another way of perceiving the idea of standing tall without using muscular force. Is it possible to line up our skeleton in such a perfect way that makes standing effortless? Well, I believe it is, but it’s a never-ending journey! 
+I hope you’ll join me for the four Tuesday nights in June to upgrade our vertical alignment to stimulate bone strength through natural movement and weight-bearing postures. For this series you will need your Bones for Life® 7-yard fabric wrap, and one- or two-pound hand weights. (Or you can use ankle weights on your wrists.)
 
-This next segment “Head to Toe,” invites us to discover the relationships of the many skeletal components that allow us effortless movement particularly in standing and walking. If you are new to Bones for Life®, this is an excellent time to start! If you have taken classes, this segment provides an opportunity to revisit, refresh and upgrade your understanding and go deeper into the processes. Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. 
-This series will require a wrap (7 yards by 40 inches of light cotton fabric.)
-
-With simple and gentle instruction, Bones for Life® processes can also bring the following benefits: 
+With simple and gentle instruction, Bones for Life® processes can bring the following benefits: 
 
 	Coordinates a springy and vibrant walk.
 	Frees the joints from compromising habits allowing for pain free movement.
@@ -64,28 +64,28 @@ With simple and gentle instruction, Bones for Life® processes can also bring th
 	Teaches you how to move your unique body in a range that is right for you. 
 	Helps you to rediscover the pleasure of moving! 
 
+If you are new to Bones for Life®, this is an excellent time to start! If you have taken classes before, we will be learning some new processes and revisiting a few favorites. Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. For more information check out this link: http://movementintelligence.org/bones-for-life/
+So, let’s do this together! 
+
 Online on Zoom
- 4 Tuesdays in May 6:00 p.m – 7:00 p.m. (EST)
-May 3, 10, 17, (no class May 24) May 31
+ 4 Tuesdays in June 6:00 p.m. – 7:00 p.m. (EST)
+June 7, 14, 21, 28
 Classes will be recorded and available for two weeks. (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Tuesday night class. )
 
 Registration
-To register, simply email me at monnierliz@gmail.com by May 2. I will then send you a link to the Zoom Meeting and send a recording to you afterward. I will also supply written reviews of the classes. 
-A reminder that you will need to submit the FMI Memorandum of Understanding prior to taking a class. You only need to do this once. 
+To register, simply respond to this email by June 7.  I will then send you a link to the Zoom Meeting.  
+If this is your first Bones for Life® class,  you will need to submit the Foundation for Movement Intelligence  Memorandum of Understanding prior to taking a class. You only need to do this once. 
 https://forms.gle/K6mNWwSemJ5dkFEq9
-Class fees are $40 for the series or $13 for a drop-in. 
-Payments can be made through PayPal or you can send a check to my home address.
 
+Class fees are $40 for the series or $13 for a drop-in. If you are financially challenged but would like to join in, please let me know. 
+Payments can be made through PayPal, WISE, or you can send a check to my home address.
 
 Dance for PD (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
-Tuesdays 12:30 p.m.-1:30 p.m. (No class May 3)
-Starting January 4, 2022 - June 7 (Call 260-424-6574 to register, drop in’s welcome)
+Tuesdays 12:30 p.m.-1:30 p.m.  Five-week session. 
+Starting June 28- July 26 (Call 260-424-6574 to register, drop in’s welcome)
 
-Exploring Dance (for young adults with developmental disabilities) In Person
-Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
-Mondays, 5:30-6:30 (call 260-424-6574 to register) (No class May 2 or May 30)
-Starting January 3, 2022- June 13
+
 
  
 
