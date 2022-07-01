@@ -43,17 +43,12 @@ be a better swimmer. For others they look to movement to reduce stress.
 We can start on a path of easier movement together.
 
 Join a Class with Liz 
-I am happy to announce that we will once again be offering Feldenkrais® Awareness Through Movement Classes, in-person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne! 
-This 10-week series which meets each Thursday, 12 noon – 1:00 p.m. starts March 31 and continues through June 9. (No class on April 7.) The fee for the series is $115, or $13 for a drop-in class. To register, call the Fort Wayne Dance Collective, 260-424-6574 or go online to https://classbug.com/businesses/2586/events/1301914 to sign up.
-If you would like to learn more about Awareness Through Movement® classes, here is a link to a fabulous 5-minute video produced by Future Life Now. 
-       https://www.youtube.com/watch?v=NQjBXunhOVQ&t=3s	
 
-Strengthening the Antigravity Axis
-A Bones for Life® series for June 2022 with Liz Monnier
-June 7, 14, 21, 28 Tuesday nights 6:00-7:00 p.m. (EST)
-
-Antigravity Axis? What in the world is that? It’s a way of standing while being free from the force of gravity which is pulling on us every minute of every day. It’s another way of perceiving the idea of standing tall without using muscular force. Is it possible to line up our skeleton in such a perfect way that makes standing effortless? Well, I believe it is, but it’s a never-ending journey! 
-I hope you’ll join me for the four Tuesday nights in June to upgrade our vertical alignment to stimulate bone strength through natural movement and weight-bearing postures. For this series you will need your Bones for Life® 7-yard fabric wrap, and one- or two-pound hand weights. (Or you can use ankle weights on your wrists.)
+Finding your Footing
+A Bones for Life® four-week series July 2022
+Thursdays, 12 Noon -1:00 p.m. (EST) with Liz Monnier
+ 
+One of the proven benefits of participating in a Bones for Life® program is an increase in self-confidence! Fear of falling is by far one of most devasting emotions that grabs a hold as we age. The fear-based approach is to hold on in order not to fall, to be careful, to go slowly and to avoid confrontation. In this way, the fear becomes more and more dominant. The Bones for Life® program provides an experience of a safe and reliable model of standing that offers an expanded potential for movement within maximum equilibrium. In order to gain balance, every part of the body needs to be finely tuned and in harmony with all the other parts. I hope you’ll join me in July as we explore and discover our self-reliance. For this series you will need a set of ankle weights.
 
 With simple and gentle instruction, Bones for Life® processes can bring the following benefits: 
 
@@ -68,12 +63,12 @@ If you are new to Bones for Life®, this is an excellent time to start! If you h
 So, let’s do this together! 
 
 Online on Zoom
- 4 Tuesdays in June 6:00 p.m. – 7:00 p.m. (EST)
-June 7, 14, 21, 28
+4 Thursdays in July 12 noon -1:00p.m. (EST)
+July 7, 14, 21, 28
 Classes will be recorded and available for two weeks. (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Tuesday night class. )
 
 Registration
-To register, simply respond to this email by June 7.  I will then send you a link to the Zoom Meeting.  
+To register, simply respond to this email by July 5.  I will then send you a link to the Zoom Meeting.  
 If this is your first Bones for Life® class,  you will need to submit the Foundation for Movement Intelligence  Memorandum of Understanding prior to taking a class. You only need to do this once. 
 https://forms.gle/K6mNWwSemJ5dkFEq9
 
