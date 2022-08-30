@@ -85,8 +85,7 @@ Payments can be made through PayPal, WISE, or you can send a check to my home ad
 
 Dance for PD (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
-Tuesdays 12:30 p.m.-1:30 p.m.  Five-week session. 
-One more class August 9 (Call 260-424-6574 to register, drop in’s welcome)
+Mondays 12:30 p.m.-1:30 p.m.  starting September 12 (Call 260-424-6574 to register, drop in’s welcome)
 
 
 
