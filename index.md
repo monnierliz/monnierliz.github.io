@@ -43,6 +43,7 @@ be a better swimmer. For others they look to movement to reduce stress.
 We can start on a path of easier movement together.
 
 Join a Class with Liz 
+
 Self-Adjust, Self-Heal
 A Bones for Life® four-class series with Liz Monnier
 November 10, 17, December 1, 8
@@ -60,7 +61,7 @@ With simple and gentle instruction, Bones for Life® processes can bring the fol
 Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. For more information check out this link: http://movementintelligence.org/bones-for-life
 
 Registration
-To register, simply send Liz and email: monnierliz@gmail.com, by November 9. She will then send you a link to the Zoom Meeting and add you to her list for recordings and class reviews.  
+To register, simply send Liz an email: monnierliz@gmail.com, by November 9. She will then send you a link to the Zoom Meeting and add you to her list for recordings and class reviews.  
 **If this is your first Bones for Life® class, you will need to submit the Foundation for Movement Intelligence Memorandum of Understanding prior to taking a class. You only need to do this once. 
 https://forms.gle/K6mNWwSemJ5dkFEq9
 
