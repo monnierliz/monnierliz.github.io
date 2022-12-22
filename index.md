@@ -43,6 +43,7 @@ be a better swimmer. For others they look to movement to reduce stress.
 We can start on a path of easier movement together.
 
 Join a Class with Liz in person or on Zoom
+
 **Feet First!**
 **A Bones for Life® four-class series with Liz Monnier**
 January 5, 12, 19 and 26, 2023
@@ -68,8 +69,9 @@ https://forms.gle/K6mNWwSemJ5dkFEq9
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 Mondays 12:30 p.m.-1:30 p.m. January 9- June 12  (Call 260-424-6574 to register,fwdc.org, drop in’s welcome)
 
-**Exploring Dance** 
-**is a class that is accessible for people of diverse abilities. Students will gain confidence by expressing themselves through dance. We will refine our motor skills while gaining strength and flexibility. Mondays 5:30-6:30 p.m. January 9- June 12 at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802. Call 260-424-6574 or check out the website at fwdc.org**
+**Exploring Dance **(for young adults with developmental disabilities)In Person**
+Students will gain confidence by expressing themselves through dance. We will refine our motor skills while gaining strength and flexibility. Mondays 5:30-6:30, January 9-June 12, 2023 at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802. To register call 260-424-6574 or fwdc.org. 
+Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 
 
 **T'ai Chi For Relaxation** 
