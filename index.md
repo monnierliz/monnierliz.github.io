@@ -44,9 +44,9 @@ We can start on a path of easier movement together.
 
 Join a Class with Liz in person or on Zoom
 
-**Feet First!**
+**Facing the Hump**
 **A Bones for Life® four-class series with Liz Monnier**
-January 5, 12, 19 and 26, 2023
+February 2, 9, 16, 23 2023
 Thursdays 12:00 noon – 1:00 p.m. (Eastern Standard Time) On Zoom
 To register email monnierliz@gmail.com
 
