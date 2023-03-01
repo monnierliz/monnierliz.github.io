@@ -44,9 +44,9 @@ We can start on a path of easier movement together.
 
 Join a Class with Liz in person or on Zoom
 
-**Facing the Hump**
+**Aligning the Spine**
 **A Bones for Life® four-class series with Liz Monnier**
-February 2, 9, 16, 23 2023
+March 2, 9, 16, 30
 Thursdays 12:00 noon – 1:00 p.m. (Eastern Standard Time) On Zoom
 To register email monnierliz@gmail.com
 
@@ -77,5 +77,10 @@ Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 **T'ai Chi For Relaxation** 
 In person at the Fort Wayne Botanical Gardens, Tuesdays 9:30-10:30 a.m. and 5-6:00 p.m. January 31-February 28. 
 All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. To register contact Fort Wayne Parks and Recreation (260)427-6000
+
+Making Movement Fun
+a one-hour workshop at Four Seasons Retirement Center in Columbus, Indiana
+March 22, 2023 at 1:00
+How to work with people with limited mobility and create a fun and dynamic dance class. 
 
 <p style="text-align: center;">{% include button.html text="Learn More" link="/services" %}</p>
