@@ -44,16 +44,14 @@ We can start on a path of easier movement together.
 
 Join a Class with Liz in person or on Zoom
 
-**Aligning the Spine**
+**Hips and Knees Part 1 
 **A Bones for Life® four-class series with Liz Monnier**
-March 2, 9, 16, 30
+April 6, 13, 20, 27
 Thursdays 12:00 noon – 1:00 p.m. (Eastern Standard Time) On Zoom
 To register email monnierliz@gmail.com
+The weather is getting warmer and there is nothing better than taking a walk through the woods. But if our knees or hips are achy it’s not so much fun. These delicate joints must all be in harmony for a truly joyful walking experience. As our balance improves, we are simultaneously creating a more dynamic skeleton that is able to build more bone. We are aligning ourselves to create the domino effect of the ground force to travel all the up our spine. We don’t get this quality of movement from a pill or a doctor. We achieve it by being aware of our own movement. That is pretty magical! 
 
-**Bones for Life® Botanical Gardens, Fort Wayne, In Person**
-Tuesdays in March 5:00-6:00 (March 7, 14, 21 and 28, 2023)
-Improve bone health and strength with the gentle, natural movements guided by Liz Monnier.  Liz is a certified Bones for Life® instructor.  This practice has been shown to improve posture, decrease pain, and aid in the fight against osteoporosis.  While this class is most effective with movements involving standing, walking, sitting, and lying on the floor, movement may be modified to accommodate restrictions.  Please bring a water bottle, yoga mat or blanket, long scarf and wear comfortable fitting shoes.
-To register: call the Fort Wayne Parks and Recreation Dept. (260) 427-6000
+Improve bone health and strength with the gentle, natural movements guided by Liz Monnier.  Liz is a certified Bones for Life® instructor.  This practice has been shown to improve posture, decrease pain, and aid in the fight against osteoporosis.  While this class is most effective with movements involving standing, walking, sitting, and lying on the floor, movement may be modified to accommodate restrictions.  
 Benefits from Bones for Life®: 
 	Coordinates a springy and vibrant walk.
 	Frees the joints from compromising habits allowing for pain free movement.
@@ -73,14 +71,5 @@ Mondays 12:30 p.m.-1:30 p.m. January 9- June 12  (Call 260-424-6574 to register,
 Students will gain confidence by expressing themselves through dance. We will refine our motor skills while gaining strength and flexibility. Mondays 5:30-6:30, January 9-June 12, 2023 at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802. To register call 260-424-6574 or fwdc.org. 
 Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 
-
-**T'ai Chi For Relaxation** 
-In person at the Fort Wayne Botanical Gardens, Tuesdays 9:30-10:30 a.m. and 5-6:00 p.m. January 31-February 28. 
-All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. To register contact Fort Wayne Parks and Recreation (260)427-6000
-
-Making Movement Fun
-a one-hour workshop at Four Seasons Retirement Center in Columbus, Indiana
-March 22, 2023 at 1:00
-How to work with people with limited mobility and create a fun and dynamic dance class. 
 
 <p style="text-align: center;">{% include button.html text="Learn More" link="/services" %}</p>
