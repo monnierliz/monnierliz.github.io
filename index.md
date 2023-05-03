@@ -44,9 +44,9 @@ We can start on a path of easier movement together.
 
 Join a Class with Liz in person or on Zoom
 
-**Hips and Knees Part 1 
+**Hips and Knees Part 2 
 **A Bones for Life® four-class series with Liz Monnier**
-April 6, 13, 20, 27
+May 4, 11, 18, 25
 Thursdays 12:00 noon – 1:00 p.m. (Eastern Standard Time) On Zoom
 To register email monnierliz@gmail.com
 The weather is getting warmer and there is nothing better than taking a walk through the woods. But if our knees or hips are achy it’s not so much fun. These delicate joints must all be in harmony for a truly joyful walking experience. As our balance improves, we are simultaneously creating a more dynamic skeleton that is able to build more bone. We are aligning ourselves to create the domino effect of the ground force to travel all the up our spine. We don’t get this quality of movement from a pill or a doctor. We achieve it by being aware of our own movement. That is pretty magical! 
