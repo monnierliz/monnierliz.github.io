@@ -44,13 +44,19 @@ We can start on a path of easier movement together.
 
 Join a Class with Liz in person or on Zoom
 
-**Hips and Knees Part 2 
-**A Bones for Life® four-class series with Liz Monnier**
-May 4, 11, 18, 25
-Thursdays 12:00 noon – 1:00 p.m. (Eastern Standard Time) On Zoom
-To register email monnierliz@gmail.com
-The weather is getting warmer and there is nothing better than taking a walk through the woods. But if our knees or hips are achy it’s not so much fun. These delicate joints must all be in harmony for a truly joyful walking experience. As our balance improves, we are simultaneously creating a more dynamic skeleton that is able to build more bone. We are aligning ourselves to create the domino effect of the ground force to travel all the up our spine. We don’t get this quality of movement from a pill or a doctor. We achieve it by being aware of our own movement. That is pretty magical! 
+Bones for Life® processes help us to understand more about ourselves. When we begin to pay attention to our movement and feel more aware, the brain and nervous system make positive changes that create more efficiency. Movement becomes easier and more enjoyable. I believe you will feel a difference. 
 
+Head to Toe:  A Bones for Life® four-class series with Liz Monnier
+
+“The Movement Answer for Bone Strength and Weight Bearing Posture”
+June 1, 8, 15, 29 (no class June 22)
+Thursdays 12:00 noon – 1:00 p.m. (Eastern Standard Time) On Zoom
+Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
+(Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Thursday noon (EST) class. )
+
+This next segment “Head to Toe,” invites us to discover the relationships of the many skeletal components that allow us to experience effortless movement particularly in standing and walking. If you are new to Bones for Life®, this is an excellent time to start! If you have taken classes, this segment provides an opportunity to revisit, refresh and upgrade your understanding and go deeper into the processes. Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. 
+
+To register email monnierliz@gmail.com
 Improve bone health and strength with the gentle, natural movements guided by Liz Monnier.  Liz is a certified Bones for Life® instructor.  This practice has been shown to improve posture, decrease pain, and aid in the fight against osteoporosis.  While this class is most effective with movements involving standing, walking, sitting, and lying on the floor, movement may be modified to accommodate restrictions.  
 Benefits from Bones for Life®: 
 	Coordinates a springy and vibrant walk.
@@ -65,10 +71,10 @@ https://forms.gle/K6mNWwSemJ5dkFEq9
 
 **Dance for PD** (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
-Mondays 12:30 p.m.-1:30 p.m. January 9- June 12  (Call 260-424-6574 to register,fwdc.org, drop in’s welcome)
+Mondays 12:30 p.m.-1:30 p.m. classes will resume in the fall. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome)
 
 **Exploring Dance **(for young adults with developmental disabilities)In Person**
-Students will gain confidence by expressing themselves through dance. We will refine our motor skills while gaining strength and flexibility. Mondays 5:30-6:30, January 9-June 12, 2023 at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802. To register call 260-424-6574 or fwdc.org. 
+Students will gain confidence by expressing themselves through dance. We will refine our motor skills while gaining strength and flexibility. Mondays 5:30-6:30, classes will resume in the fall at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802. To register call 260-424-6574 or fwdc.org. 
 Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 
 
