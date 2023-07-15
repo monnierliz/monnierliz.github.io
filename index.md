@@ -46,15 +46,14 @@ Join a Class with Liz in person or on Zoom
 
 Bones for Life® processes help us to understand more about ourselves. When we begin to pay attention to our movement and feel more aware, the brain and nervous system make positive changes that create more efficiency. Movement becomes easier and more enjoyable. I believe you will feel a difference. 
 
-Head to Toe:  A Bones for Life® four-class series with Liz Monnier
+**Finding your Footing:  A Bones for Life® four-class series with Liz Monnier**
 
 “The Movement Answer for Bone Strength and Weight Bearing Posture”
-June 1, 8, 15, 29 (no class June 22)
+July 6, 13,20 and 27
 Thursdays 12:00 noon – 1:00 p.m. (Eastern Standard Time) On Zoom
 Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
-(Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Thursday noon (EST) class. )
-
-This next segment “Head to Toe,” invites us to discover the relationships of the many skeletal components that allow us to experience effortless movement particularly in standing and walking. If you are new to Bones for Life®, this is an excellent time to start! If you have taken classes, this segment provides an opportunity to revisit, refresh and upgrade your understanding and go deeper into the processes. Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. 
+(Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Thursday noon (EST) class.)
+Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. 
 
 To register email monnierliz@gmail.com
 Improve bone health and strength with the gentle, natural movements guided by Liz Monnier.  Liz is a certified Bones for Life® instructor.  This practice has been shown to improve posture, decrease pain, and aid in the fight against osteoporosis.  While this class is most effective with movements involving standing, walking, sitting, and lying on the floor, movement may be modified to accommodate restrictions.  
@@ -66,8 +65,12 @@ Benefits from Bones for Life®:
 	Teaches you how to move your unique body in a range that is right for you. 
 	Helps you to rediscover the pleasure of moving! 
 Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. For more information check out this link: http://movementintelligence.org/bones-for-life  
-**If this is your first Bones for Life® class, you will need to submit the Foundation for Movement Intelligence Memorandum of Understanding prior to taking a class. You only need to do this once. 
+**If this is your first Bones for Life® class**, you will need to submit the Foundation for Movement Intelligence Memorandum of Understanding prior to taking a class. You only need to do this once. 
 https://forms.gle/K6mNWwSemJ5dkFEq9
+
+**Bones for Life® in person** this September at the Botanical Gardens, meeting Tuesdays 9:30-10:30 a.m. Contact the Fort Wayne Parks and Recreation Department for registration.
+
+**T'ai Chi for Relaxation** in person this September at the Botanical Gardens, meeting Tuesdays 5-6:00 p.m. Contact the Fort Wayne Parks and Recreation Department for registration. 
 
 **Dance for PD** (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
