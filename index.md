@@ -45,8 +45,7 @@ We can start on a path of easier movement together.
 Join a Class with Liz in person or on Zoom
 
 Bones for Life® processes help us to understand more about ourselves. When we begin to pay attention to our movement and feel more aware, the brain and nervous system make positive changes that create more efficiency. Movement becomes easier and more enjoyable. I believe you will feel a difference. 
-
-A Bones for Life® four-class series with Liz Monnier**
+A Bones for Life® four-class series with Liz Monnier
 
 “The Movement Answer for Bone Strength and Weight Bearing Posture”
 September 7, 14, 21, 218
