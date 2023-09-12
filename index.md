@@ -46,10 +46,10 @@ Join a Class with Liz in person or on Zoom
 
 Bones for Life® processes help us to understand more about ourselves. When we begin to pay attention to our movement and feel more aware, the brain and nervous system make positive changes that create more efficiency. Movement becomes easier and more enjoyable. I believe you will feel a difference. 
 
-**Finding your Footing:  A Bones for Life® four-class series with Liz Monnier**
+A Bones for Life® four-class series with Liz Monnier**
 
 “The Movement Answer for Bone Strength and Weight Bearing Posture”
-July 6, 13,20 and 27
+September 7, 14, 21, 218
 Thursdays 12:00 noon – 1:00 p.m. (Eastern Standard Time) On Zoom
 Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
 (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Thursday noon (EST) class.)
@@ -67,10 +67,6 @@ Benefits from Bones for Life®:
 Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. For more information check out this link: http://movementintelligence.org/bones-for-life  
 **If this is your first Bones for Life® class**, you will need to submit the Foundation for Movement Intelligence Memorandum of Understanding prior to taking a class. You only need to do this once. 
 https://forms.gle/K6mNWwSemJ5dkFEq9
-
-**Bones for Life® in person** this September at the Botanical Gardens, meeting Tuesdays 9:30-10:30 a.m. Contact the Fort Wayne Parks and Recreation Department for registration.
-
-**T'ai Chi for Relaxation** in person this September at the Botanical Gardens, meeting Tuesdays 5-6:00 p.m. Contact the Fort Wayne Parks and Recreation Department for registration. 
 
 **Dance for PD** (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
