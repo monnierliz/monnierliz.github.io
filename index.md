@@ -48,11 +48,13 @@ Bones for Life® processes help us to understand more about ourselves. When we b
 A Bones for Life® four-class series with Liz Monnier
 
 “The Movement Answer for Bone Strength and Weight Bearing Posture”
-September 7, 14, 21, 28
+**Finding Center: A Four Class Bones for Life® Series with Liz on Zoom**
+December 7, 14, 21, 28, 2023
 Thursdays 12:00 noon – 1:00 p.m. (Eastern Standard Time) On Zoom
 Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
 (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Thursday noon (EST) class.)
-Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. 
+Classes are $40 for the four-class series. 
+Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. For more information check out this link: http://movementintelligence.org/bones-for-life  
 
 To register email monnierliz@gmail.com
 Improve bone health and strength with the gentle, natural movements guided by Liz Monnier.  Liz is a certified Bones for Life® instructor.  This practice has been shown to improve posture, decrease pain, and aid in the fight against osteoporosis.  While this class is most effective with movements involving standing, walking, sitting, and lying on the floor, movement may be modified to accommodate restrictions.  
@@ -63,17 +65,26 @@ Benefits from Bones for Life®:
 	Develops skills for restoring equilibrium. 
 	Teaches you how to move your unique body in a range that is right for you. 
 	Helps you to rediscover the pleasure of moving! 
-Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. For more information check out this link: http://movementintelligence.org/bones-for-life  
+
 **If this is your first Bones for Life® class**, you will need to submit the Foundation for Movement Intelligence Memorandum of Understanding prior to taking a class. You only need to do this once. 
 https://forms.gle/K6mNWwSemJ5dkFEq9
 
+**Other In Person Classes Available with Liz Monnier:**
+
 **Dance for PD** (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
-Mondays 12:30 p.m.-1:30 p.m. classes will resume in the fall. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome)
+Mondays 12:30 p.m.-1:30 p.m. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome) Winter Classes start January 8, 2024. 
 
-**Exploring Dance **(for young adults with developmental disabilities)In Person**
-Students will gain confidence by expressing themselves through dance. We will refine our motor skills while gaining strength and flexibility. Mondays 5:30-6:30, classes will resume in the fall at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802. To register call 260-424-6574 or fwdc.org. 
+**Exploring Dance**(for young adults with diversabilities)
+Students will gain confidence by expressing themselves through dance. We will refine our motor skills while improving strength and flexibility. Mondays 6:15-7:15 p.m. at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802. To register call 260-424-6574 or fwdc.org. Winter Classes start January 8, 2024. 
 Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 
+**T'ai Chi For Relaxtion**
+In person at the Fort Wayne Botanical Gardens, Tuesdays January 23 - February 27, 2024, 10 a.m.-11:00 a.m. AND 5:00 p.m.- 6:00 p.m. All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. To register call Fort Wayne Parks and Recreation: 260-427-6000.
+
+**Bones for Life®**
+In Person at the Fort Wayne Botanical Gardens, Tuesdays 5:00-6:00 p.m. March 5- 26 (registration deadline; February 27)
+AND April 16-May 7, 2024,registration deadline April 9) 
+To register call Fort Wayne Parks and Recreation: 260-427-6000.
 
 <p style="text-align: center;">{% include button.html text="Learn More" link="/services" %}</p>
