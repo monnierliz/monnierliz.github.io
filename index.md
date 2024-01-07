@@ -48,8 +48,8 @@ Bones for Life® processes help us to understand more about ourselves. When we b
 A Bones for Life® four-class series with Liz Monnier
 
 “The Movement Answer for Bone Strength and Weight Bearing Posture”
-**Finding Center: A Four Class Bones for Life® Series with Liz on Zoom**
-December 7, 14, 21, 28, 2023
+**Stand Tall and Be Strong: A Four Class Bones for Life® Series with Liz on Zoom**
+January 4, 11, 18, 25, 2024
 Thursdays 12:00 noon – 1:00 p.m. (Eastern Standard Time) On Zoom
 Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
 (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Thursday noon (EST) class.)
