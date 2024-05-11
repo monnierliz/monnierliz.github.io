@@ -48,8 +48,8 @@ Bones for Life® processes help us to understand more about ourselves. When we b
 A Bones for Life® four-class series with Liz Monnier
 
 “The Movement Answer for Bone Strength and Weight Bearing Posture”
-Hips and Knees Part Continues  A Four Class Bones for Life® Series with Liz on Zoom**
-April 4, 9, 18, 25
+Head to Toe  A Four Class Bones for Life® Series with Liz on Zoom**
+May 9, 16, 23, 30
 12:00 noon – 1:00 p.m. (Eastern Standard Time) On Zoom
 Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
 (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Thursday noon (EST) class.)
@@ -80,17 +80,8 @@ Students will gain confidence by expressing themselves through dance. We will re
 Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 
 **T'ai Chi For Relaxtion**
-In person at the Fort Wayne Botanical Gardens, Tuesdays January 23 - February 27, 2024, 10 a.m.-11:00 a.m. AND 5:00 p.m.- 6:00 p.m. All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. To register call Fort Wayne Parks and Recreation: 260-427-6000.
-
-**Movement Theatre Workshop**
-Sunday, February 18, 2024, 1-3 p.m. at the Fort Wayne Dance Collective
-To register go to FWDC.org or call 260-424-6574
-This playful yet disciplined form of improvisation is based on the work of Ruth Zaporah, whom the presenter, Liz Monnier studied with on several occasions. Using movement, sound, and language we delve into unexplored territories that allow us to express and expand ourselves in ways we never thought possible. Through forms and frameworks, we learn that improvisation is not “doing anything you want,” but rather choosing with intent and understanding how you are going to participate with what is going on around you. 
+Various Libraries in Fort Wayne, Indiana, May through July. All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. To register call Fort Wayne Parks and Recreation: 260-427-6000.
 
 
-**Bones for Life®**
-In Person at the Fort Wayne Botanical Gardens, Tuesdays 5:00-6:00 p.m. March 5- 26 (registration deadline; February 27)
-AND April 16-May 7, 2024,registration deadline April 9) 
-To register call Fort Wayne Parks and Recreation: 260-427-6000.
 
 <p style="text-align: center;">{% include button.html text="Learn More" link="/services" %}</p>
