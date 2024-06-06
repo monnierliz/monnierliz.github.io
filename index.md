@@ -84,6 +84,24 @@ Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 **T'ai Chi For Relaxtion**
 Various Libraries in Fort Wayne, Indiana, May through July. All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. 
 
+**Liz will be teaching T’ai Chi for Relaxation at the following Library locations this summer in Fort Wayne, IN. 
+Classes are free!** **
+
+June 10: Tecumseh Library 7:00-8:00 p.m.
+June 11: Hessen Cassel Library 6:30-7:30 p.m.
+June 12: Dupont Library 3:00-4:00 p.m.
+June 17: Georgetown Library 4:00-5:00 p.m.
+June 19: New Haven Library 2:00-3:00 p.m.
+June 26: Shawnee Library 6:30-7:30 p.m.
+July 10: Little Turtle Library 6:30-7:30 p.m.
+July 16: Hessen Cassel Library 6:30-7:30 p.m.
+July 17: Dupont Library 3:00-4:00 p.m.
+July 19: Waynedale Library 1:30-2:30 p.m.
+July 20: Pontiac Library 2:30-3:30 p.m.
+July 22: Georgetown Library 4:00-5:00 p.m.
+July 24: Shawnee Library 6:30-7:30 p.m.
+
+
 
 
 
