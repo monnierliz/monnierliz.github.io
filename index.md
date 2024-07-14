@@ -48,10 +48,10 @@ Bones for Life® processes help us to understand more about ourselves. When we b
 A Bones for Life® four-class series with Liz Monnier
 
 “The Movement Answer for Bone Strength and Weight Bearing Posture”
-Restoring Balance
+Finding Your Footing
 A Bones for Life® series with Liz Monnier
-June 6, 13, 20, 27, 2024
-On Zoom, Thursdays 12 noon – 1 p.m. (EST)
+July 11, 18, 24, and August 1
+On Zoom, 12 noon – 1 p.m. (EST)
  Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
 (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Thursday noon (EST) class. )
 
@@ -75,25 +75,13 @@ https://forms.gle/K6mNWwSemJ5dkFEq9
 
 **Dance for PD** (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
-Mondays 12:30 p.m.-1:30 p.m. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome) Winter Classes start January 8, 2024. 
-
-**Exploring Dance**(for young adults with diversabilities)
-Students will gain confidence by expressing themselves through dance. We will refine our motor skills while improving strength and flexibility. Mondays 6:15-7:15 p.m. at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802. To register call 260-424-6574 or fwdc.org. Winter Classes start January 8, 2024. 
-Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
+Mondays 12:30 p.m.-1:30 p.m. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome) Winter Classes starting July 1.  
 
 **T'ai Chi For Relaxtion**
 Various Libraries in Fort Wayne, Indiana, May through July. All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. 
 
 **Liz will be teaching T’ai Chi for Relaxation at the following Library locations this summer in Fort Wayne, IN. 
-Classes are free!** **
-
-June 10: Tecumseh Library 7:00-8:00 p.m.
-June 11: Hessen Cassel Library 6:30-7:30 p.m.
-June 12: Dupont Library 3:00-4:00 p.m.
-June 17: Georgetown Library 4:00-5:00 p.m.
-June 19: New Haven Library 2:00-3:00 p.m.
-June 26: Shawnee Library 6:30-7:30 p.m.
-July 10: Little Turtle Library 6:30-7:30 p.m.
+Classes are free!** **.
 July 16: Hessen Cassel Library 6:30-7:30 p.m.
 July 17: Dupont Library 3:00-4:00 p.m.
 July 19: Waynedale Library 1:30-2:30 p.m.
