@@ -46,9 +46,9 @@ Join a Class with Liz in person or on Zoom
 
 Bones for Life® processes help us to understand more about ourselves. When we begin to pay attention to our movement and feel more aware, the brain and nervous system make positive changes that create more efficiency. Movement becomes easier and more enjoyable. I believe you will feel a difference. 
 
-Happy Hips
+From the Ground Up
 A Bones for Life® four-class series with Liz Monnier
-September 5, 12, 19, 26, 2024
+January 9, 16, 23, 30, 2025
 On Zoom, 12 noon – 1 p.m. (EST)
  Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
 (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Thursday noon (EST) class. )
@@ -71,12 +71,12 @@ https://forms.gle/K6mNWwSemJ5dkFEq9
 
 **Other In Person Classes Available with Liz Monnier:**
 
-**Bones for Life®** in person at the Botanical Gardens, Fort Wayne, IN
-Tuesdays 5-6:00 p.m. October 1 -November 5, 2024. To register call the Fort Wayne Parks and Recreation Department 260 - 427-6000. 
+**T'ai Chi, Qigong®** in person at the Botanical Gardens, Fort Wayne, IN
+Tuesdays 5-6:00 p.m. January 14-February 18, 2025 To register call the Fort Wayne Parks and Recreation Department 260 - 427-6000. 
 
 **Dance for PD** (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
-Mondays 12:30 p.m.-1:30 p.m. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome) Fall Classes start September 9, 2024  
+Mondays 12:30 p.m.-1:30 p.m. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome) Winter Classes start January 6, 2025  
 
 
 
