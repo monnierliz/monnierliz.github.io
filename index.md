@@ -45,11 +45,10 @@ We can start on a path of easier movement together.
 Join a Class with Liz in person or on Zoom
 
 Bones for Life® processes help us to understand more about ourselves. When we begin to pay attention to our movement and feel more aware, the brain and nervous system make positive changes that create more efficiency. Movement becomes easier and more enjoyable. I believe you will feel a difference. 
-
-Hips and Knees
+Head to Toe 
 A Bones for Life® four-class series with Liz Monnier
-March 6, 13, 20, 27, 2025
-On Zoom, 12 noon – 1 p.m. (EST)
+May 6, 13, 20, 27, 2025
+On Zoom, Tuesdays 12 noon – 1 p.m. (EST)
  Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
 (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Thursday noon (EST) class. )
 
@@ -70,9 +69,17 @@ Benefits from Bones for Life®:
 https://forms.gle/K6mNWwSemJ5dkFEq9
 
 **Other In Person Classes Available with Liz Monnier:**
+T’ai Chi for Posture and Balance with Liz Monnier 
+at the Renaissance YMCA, 2323 Bowser Ave in Fort Wayne. 
+Wednesdays and Fridays in May 
+11:30 a.m. -12:30 p.m.
+(May 7, 9, 14, 16, 21, 23, 28 and 30)
+FREE, no registration required, drop-ins welcome! 
+Using the principals of skeletal alignment and our relationship with gravity, this class will incorporate elements of gentle T’ai Chi movement patterns with Bones for Life® principles.  Students will experience user-friendly movements that invigorate energy, increase flexibility, balance and strength. Participants are welcome to do the class seated. No experience necessary!
+
 
 **T'ai Chi, Qigong®** in person at the Botanical Gardens, Fort Wayne, IN
-To be announced.  
+Tuesdays 10 a.m. -11:00 a.m. June 3 - July 8. Call Fort Wayne Parks and Rec to register. 
 
 **Dance for PD** (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
