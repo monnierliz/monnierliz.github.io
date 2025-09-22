@@ -45,10 +45,10 @@ We can start on a path of easier movement together.
 Join a Class with Liz in person or on Zoom
 
 Bones for Life® processes help us to understand more about ourselves. When we begin to pay attention to our movement and feel more aware, the brain and nervous system make positive changes that create more efficiency. Movement becomes easier and more enjoyable. I believe you will feel a difference. 
-Head to Toe 
-A Bones for Life® four-class series with Liz Monnier
-July 8, 15, 22, 29
-On Zoom, Tuesdays 12 noon – 1 p.m. (EST)
+
+**A Bones for Life® four-class series with Liz Monnier**
+October 7, 14, 21, 28
+**On Zoom,Tuesdays 12 noon – 1 p.m. (EST)
  Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
 (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Thursday noon (EST) class. )
 
@@ -69,9 +69,27 @@ Benefits from Bones for Life®:
 https://forms.gle/K6mNWwSemJ5dkFEq9
 
 **Other In Person Classes Available with Liz Monnier:**
+** Introduction to Qigong: Tuesdays 6:30-7:30 p.m.(September 23, October 7, 21, November 4, 18) at DNA Awakening School, 1615 S. Calhoun Street, Fort Wayne, IN inside the Art and Awakening Center. Fee: $15
+Parking on the street and across the street in the fenced area. 
+Registration encouraged at https://www.dnaempowerment.com
+Drop-ins also welcome. Qigong combines movement, breath, self-massage and meditation.  Participants should wear easy to move in clothing and can be barefoot or wear socks or soft shoes. The class can also be done seated. 
+**Feldenkrais® Awareness Through Movement Classes**
+Holistic Integration of Body and Mind 
+with Liz Monnier, Guild Certified Feldenkrais Practitioner®
+Tuesdays, 5:30-6:30 p.m. October 14, 28, November 11, 25 at 
+DNA Awakening School, 1615 S. Calhoun Street, Fort Wayne, IN inside the Art and Awakening Center. Fee: $15
+Parking on the street and across the street in the fenced area. 
+Registration encouraged at https://www.dnaempowerment.com
+Drop-ins also welcome.
+We begin our class with “Please lie on your back.” You will then be verbally guided through small and slow mindful movements to interpret in your own way without any demonstration. It allows you the time and space to be with yourself, without judgement, while becoming aware of unexpected and interesting connections within and between the movements. As you attend to improving the quality of your movement, unnecessary muscular tensions throughout the body can reorganize and release. Students are often amazed at the quick and clear changes that occur through the neuromuscular repatterning that happens in an Awareness Through Movement lesson! Unique to the Feldenkrais Method® of somatic education these lessons tie directly into functional movements of daily life, such as walking efficiently, safely lifting objects, and improving one’s posture in sitting or standing. 
+You will need a comfortable surface to lie on that you will be able to slide on. A blanket or sleeping bag over a yoga mat for example. You might need a little support under your head. You’ll remove your shoes, glasses, and anything else on your body (watches, earrings etc.) This keeps your brain from having to consider anything else except your movement. This is not an exercise class but rather a somatic practice of movement re-education. 
+<img width="468" height="491" alt="image" src="https://github.com/user-attachments/assets/4a8bfde3-62eb-4fba-a642-4ac015fcd8f5" />
+
+**
+<img width="468" height="113" alt="image" src="https://github.com/user-attachments/assets/73bfda55-b333-49d1-8728-ffa2fe1d0fa6" />
 
 **T'ai Chi, Qigong®** in person at the Botanical Gardens, Fort Wayne, IN
-Tuesdays 10 a.m. -11:00 a.m. September 9 -30.  Call Fort Wayne Parks and Rec to register. 
+Tuesdays 10 a.m. -11:00 a.m. January 20-February 24, 2026 Call Fort Wayne Parks and Rec to register 260-427-6460. 
 
 **Dance for PD** (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
