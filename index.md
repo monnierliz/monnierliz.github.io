@@ -47,7 +47,7 @@ Join a Class with Liz in person or on Zoom
 Bones for Life® processes help us to understand more about ourselves. When we begin to pay attention to our movement and feel more aware, the brain and nervous system make positive changes that create more efficiency. Movement becomes easier and more enjoyable. I believe you will feel a difference. 
 ON ZOOM
 **A Bones for Life® four-class series with Liz Monnier**
-January 6,13,20,27, 2026
+February 3, 10, 17,24 , 2026
 **On Zoom,Tuesdays 12 noon – 1 p.m. (EST)
  Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
 (Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Tuesday noon (EDT) class. )
@@ -84,7 +84,7 @@ Payments can be made through PayPal, Zelle, or you can send a check to my home a
 
 **Other In Person Classes Available with Liz Monnier:**
 T'ai Chi Chuan for Relaxation at the Botanical Gardens, Tuesdays 5-6 p.m. January 20-February 24, 2026. All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. 
-Registration deadline: January 12, 2026 Call the Fort Wayne Parks and Recreation Department at 260-427-6000. 
+Drop ins Welcome. Call the Fort Wayne Parks and Recreation Department at 260-427-6000. 
 
 **Dance for PD** (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
