@@ -47,12 +47,11 @@ Join a Class with Liz in person or on Zoom
 Bones for Life® processes help us to understand more about ourselves. When we begin to pay attention to our movement and feel more aware, the brain and nervous system make positive changes that create more efficiency. Movement becomes easier and more enjoyable. I believe you will feel a difference. 
 ON ZOOM
 **A Bones for Life® four-class series with Liz Monnier**
-February 3, 10, 17,24 , 2026
+May 5, 12, 19, 26, 2026
 **On Zoom,Tuesdays 12 noon – 1 p.m. (EST)
- Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
-(Although recordings are not interactive, it does allow for flexibility for participation on your own time. I encourage you to do this if you are unable to make the Tuesday noon (EDT) class. )
+Classes are recorded and available for 2 weeks.
 
-Classes are $40 for the four-class series. 
+Classes are $40 for the four-class series. Payments can be made through PayPal, Zelle, or you can send a check to my home address. Just ask. 
 Bones for Life® is designed to help anyone, and everyone, use natural movements to promote bone health and strength while possibly preventing osteoporosis. For more information check out this link: http://movementintelligence.org/bones-for-life  
 
 To register email monnierliz@gmail.com
@@ -69,26 +68,25 @@ Benefits from Bones for Life®:
 https://forms.gle/K6mNWwSemJ5dkFEq9
 
 **NEW ZOOM Offering**
-Qigong, Thursdays at 6:00-7:00 p.m.(EDT) on Zoom
-Can’t make this time? No worries, classes will be recorded and available for 2 weeks.
+Qigong, Thursdays at 5:45 - 6:45 p.m.(EDT) on Zoom
+Classes are recorded and available for 2 weeks.
+Classes are $40 for a four-class series. May 7, 14, 21, 28 
   
 You have within you the natural power and wisdom to re-energize and heal yourself! The method of Qigong has its roots in ancient Chinese medicine combining movement, breath, self-massage and meditation.
 Qigong is similar to T’ai Chi Chuan, but its intention is quite different. Qi means “life force,” and gong refers to “skill.” Qigong means improving your skill at tapping in and moving your own life force; your Qi (pronounced chee). 
 As we practice the simple yet profound elements of Qigong, we call upon our mind, body and spirit to interact and support each other to revitalize the intelligence that is within us.  The practice of Qigong is simple and easy to follow. There is no need to learn a lengthy form. Each class will awaken the organs, create a deeply relaxed state, and invite joy to come into every cell!
 Qigong is a safe way to reduce stagnation, enhance circulation, boost balance, flexibility, and mental clarity. The use of natural images in the movements creates a poetry of its own. 
 Please check out this YouTube recording of “The Physiology of T’ai Chi and Qigong.” https://www.youtube.com/watch?v=ZJRtZAwVwgo&t=492s
-Registration
-To register, simply respond to this email (monnierliz@gmail.com) by January 7. I will then send you a link to the Zoom Meetings and subsequent recordings. 
-Class fees are only $40 for the series.  If you are financially challenged but would like to join in, please let me know. 
+
 Payments can be made through PayPal, Zelle, or you can send a check to my home address. Just ask. 
 
 **Other In Person Classes Available with Liz Monnier:**
-T'ai Chi Chuan for Relaxation at the Botanical Gardens, Tuesdays 5-6 p.m. January 20-February 24, 2026. All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. 
+T'ai Chi Chuan for Relaxation at the Botanical Gardens, Tuesdays 10-11 a.m. June 30 - July 28.  All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. 
 Drop ins Welcome. Call the Fort Wayne Parks and Recreation Department at 260-427-6000. 
 
-**Dance for PD** (dance movement in chair for those with limited mobility) 
+**Dance for PD** Dancing in Your Seat  (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
-Mondays 12:30 p.m.-1:30 p.m. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome) Winter Classes start January 5, 2026
+Mondays 12:30 p.m.-1:30 p.m. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome) 
 
 
 
