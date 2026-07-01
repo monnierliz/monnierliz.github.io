@@ -47,7 +47,7 @@ Join a Class with Liz in person or on Zoom
 Bones for Life® processes help us to understand more about ourselves. When we begin to pay attention to our movement and feel more aware, the brain and nervous system make positive changes that create more efficiency. Movement becomes easier and more enjoyable. I believe you will feel a difference. 
 ON ZOOM
 **A Bones for Life® four-class series with Liz Monnier**
-May 5, 12, 19, 26, 2026
+July 7, 14, 21, 28
 **On Zoom,Tuesdays 12 noon – 1 p.m. (EST)
 Classes are recorded and available for 2 weeks.
 
@@ -68,7 +68,7 @@ Benefits from Bones for Life®:
 https://forms.gle/K6mNWwSemJ5dkFEq9
 
 **NEW ZOOM Offering**
-Qigong, Thursdays at 5:45 - 6:45 p.m.(EDT) on Zoom
+Qigong, Thursdays at 12 noon -1:00 (EDT) on Zoom
 Classes are recorded and available for 2 weeks.
 Classes are $40 for a four-class series. May 7, 14, 21, 28 
   
@@ -86,7 +86,7 @@ Drop ins Welcome. Call the Fort Wayne Parks and Recreation Department at 260-427
 
 **Dance for PD** Dancing in Your Seat  (dance movement in chair for those with limited mobility) 
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
-Mondays 12:30 p.m.-1:30 p.m. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome) 
+Mondays 12:30 p.m.-1:30 p.m. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome) Classes start July 13.
 
 
 
