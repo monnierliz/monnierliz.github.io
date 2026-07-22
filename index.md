@@ -88,7 +88,7 @@ Drop ins Welcome. Call the Fort Wayne Parks and Recreation Department at 260-427
 In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne, IN 46802
 Mondays 12:30 p.m.-1:30 p.m. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome) Classes start July 13.
 **
-Somatic Movement
+**Somatic Movement**
 Starting this Fall at the Fort Wayne Dance Collective, Mondays 11:00 a.m. -12 noon.
 
 Somatic Movement is a gentle, exploratory class designed to increase body awareness, improve mobility, and support overall well-being through mindful movement. Using guided movement explorations inspired by Feldenkrais Awareness Through Movement ® lessons, participants learn to recognize habitual movement patterns, release unnecessary tension, and discover more efficient ways of moving. Students must be able to lie on the floor. 
