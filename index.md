@@ -47,7 +47,7 @@ Join a Class with Liz in person or on Zoom
 Bones for Life® processes help us to understand more about ourselves. When we begin to pay attention to our movement and feel more aware, the brain and nervous system make positive changes that create more efficiency. Movement becomes easier and more enjoyable. I believe you will feel a difference. 
 ON ZOOM
 **A Bones for Life® four-class series with Liz Monnier**
-August 4, 11, 18, 25
+November 3, 10, 17, 24, 2026
 **On Zoom,Tuesdays 12 noon – 1 p.m. (EST)
 Classes are recorded and available for 2 weeks.
 
@@ -70,7 +70,7 @@ https://forms.gle/K6mNWwSemJ5dkFEq9
 **NEW ZOOM Offering**
 Qigong, Thursdays at 12 noon -1:00 (EDT) on Zoom
 Classes are recorded and available for 2 weeks.
-Classes are $40 for a four-class series. August 6, 13, 20, 27 
+Classes are $40 for a four-class series. November 5, 12, 19, 26
   
 You have within you the natural power and wisdom to re-energize and heal yourself! The method of Qigong has its roots in ancient Chinese medicine combining movement, breath, self-massage and meditation.
 Qigong is similar to T’ai Chi Chuan, but its intention is quite different. Qi means “life force,” and gong refers to “skill.” Qigong means improving your skill at tapping in and moving your own life force; your Qi (pronounced chee). 
@@ -81,7 +81,7 @@ Please check out this YouTube recording of “The Physiology of T’ai Chi and Q
 Payments can be made through PayPal, Zelle, or you can send a check to my home address. Just ask. 
 
 **Other In Person Classes Available with Liz Monnier:**
-T'ai Chi Chuan for Relaxation at the Botanical Gardens, Tuesdays 5:30-6:30 p.m. September 22-October 27. All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. 
+T'ai Chi Chuan for Relaxation at the Botanical Gardens, Tuesdays 5:30-6:30 p.m. January 12-February 9, 2027. All are welcome to find a sense of relaxation through the basic principles of this ancient Chinese movement form.  Our class will focus on breathing, developing confidence in balance and weight shifts, quieting the mind, moving slowly and finding efficiency and flow in our movement. User-friendly Qigong exercises will promote healing and internal harmony. 
 Drop ins Welcome. Call the Fort Wayne Parks and Recreation Department at 260-427-6000. 
 
 **Dance for PD** Dancing in Your Seat  (dance movement in chair for those with limited mobility) 
@@ -89,12 +89,11 @@ In Person at the Fort Wayne Dance Collective, 437 East Berry Street, Fort Wayne,
 Mondays 12:00 p.m.-1:00 p.m. (Call 260-424-6574 to register,fwdc.org, drop in’s welcome) Classes start August 31. 
 **
 **Somatic Movement**
-Starting this Fall at the Fort Wayne Dance Collective, Mondays 11:00 a.m. -12 noon. August 31 - December 7, 2026
-
+Winter Spring Session  at the Fort Wayne Dance Collective, Mondays 11:00 a.m. -12 noon. January 4- June 5, 2027
 Somatic Movement is a gentle, exploratory class designed to increase body awareness, improve mobility, and support overall well-being through mindful movement. Using guided movement explorations inspired by Feldenkrais Awareness Through Movement ® lessons, participants learn to recognize habitual movement patterns, release unnecessary tension, and discover more efficient ways of moving. Students must be able to lie on the floor. 
 Rather than focusing on choreography or technique, this class encourages curiosity, attention, and comfort. Each lesson offers practical tools that can improve balance, coordination, posture, flexibility, and ease of movement in everyday life.
 No dance experience is necessary, and all levels of movement experience are welcome. Whether you are looking to reduce stress, reconnect with your body, complement another movement practice, or simply move with greater comfort and confidence, Somatic Movement provides an inclusive and supportive environment for exploration.
-To register visit fwdc.org or call 260-424-6574. $15 drop-in, $98 7-week package, $196 full session
+To register visit fwdc.org or call 260-424-6574. $15 drop-in, 
 
 
 
